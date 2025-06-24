@@ -1,7 +1,8 @@
 <h2>日本动漫花园官网入口 - 免费动漫番剧在线看网站|镜像站</h2>
 <p>动漫花园是一个深受动漫爱好者欢迎的平台，它为用户提供了一个自由交流和资源分享的空间。该网站涵盖了丰富的动漫相关内容，包括动画、漫画、动漫音乐、动漫游戏以及各类资讯等。它不仅是一个资源分享的天堂，还提供了高清漫画扫描版下载、丰富的动漫OST（原声音乐）资源等。此外，动漫花园还支持多种下载方式，如磁力链接、BT种子等，方便用户获取资源。其界面简洁，操作便捷，更新速度快，能够及时跟进日本放送的最新热门动画。</p>
 <p><strong>一键访问：</strong><a href="https://www.imi123.cn/sites/5749.html" target="_blank"><strong>日本动漫花园最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/dongmanerciyuan"><strong>在线看动漫/漫画导航网站大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
 <p><strong>丰富的资源库</strong>：动漫花园提供了海量的动漫资源，涵盖从经典老番到最新热门新番，以及动漫电影、特摄剧集等多种类型，满足不同用户的需求。</p>
